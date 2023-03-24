@@ -1,1 +1,1 @@
-zinkq 
+hejka, widzowie
